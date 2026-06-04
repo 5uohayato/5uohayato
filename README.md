@@ -16,3 +16,10 @@ ${
 }
   }$
 </p>
+
+  </a>
+  <br>
+
+
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　 [**𝓐Τ𝖠𝖡ᝪᝪ𝖪ৎ**](https://mgcoiin.atabook.org/#google_vignette)  
+</p>　　 　
